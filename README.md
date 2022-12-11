@@ -1,4 +1,4 @@
-# My-Refocus-Assignments
+# My First Assignments
 
 Short Introduction : 
   My name is Joseph, I’m excited for the opportunity to be part of a team refocus someday or find a decent job. which fit to my course
